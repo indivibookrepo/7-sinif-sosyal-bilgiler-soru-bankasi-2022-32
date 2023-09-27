@@ -1,0 +1,1 @@
+# 7-sinif-sosyal-bilgiler-soru-bankasi-2022-32
